@@ -1,1 +1,3 @@
 # SoDoUHaveAPlanThisYr-OrAreUGoingToCloneShtOnGitHubAndIHaveToReApply-IsThereAPlanAtAllWasThereEverOne
+
+i think ure a really chaotic person
